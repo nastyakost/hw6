@@ -16,7 +16,10 @@
 # Часть 2
 
 **1.**
+
 ![](https://pp.userapi.com/c847021/v847021031/1d4cf/3zxaeXV0j38.jpg)
 
 **2.**
+
 ![](https://pp.userapi.com/c847021/v847021031/1d4d6/cDAFxRFHJbU.jpg)
+![](https://pp.userapi.com/c847021/v847021031/1d4dd/a7e8XHBUYVc.jpg)
