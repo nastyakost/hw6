@@ -24,3 +24,7 @@
 
 ![](https://pp.userapi.com/c847021/v847021031/1d4d6/cDAFxRFHJbU.jpg)
 ![](https://pp.userapi.com/c847021/v847021031/1d4dd/a7e8XHBUYVc.jpg)
+
+**3.**
+![](https://pp.userapi.com/c846320/v846320031/1d450/st1DnGsK2kI.jpg)
+![](https://pp.userapi.com/c846320/v846320031/1d448/lbZtuxEeB1Q.jpg)
